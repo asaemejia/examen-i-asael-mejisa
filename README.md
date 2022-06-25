@@ -1,4 +1,4 @@
-# Asael Obeth Mejia Gutierrez
+# Kendall Val kilmer Gomez Icaza
 
 - Nota del primer parcial: 100
 - Nota del segundo parcial: 0
